@@ -8,7 +8,7 @@ permalink: /about/
 Or maybe I should ask what are YOU doing here?
 
 ##TL;DR
-“Vlog style” cooking channel with little flare and minimal fancy gadgets. Ain’t nobody got time for that 6 hour prep and 4 hour cook on a Tuesday night. Cooking is easy when you follow the directions. Use what you have to make great fresh food.
+“Vlog style” cooking channel (with a blog/website) with little flare and minimal fancy gadgets. Ain’t nobody got time for that 6 hour prep and 4 hour cook on a Tuesday night. Cooking is easy when you follow the directions. Use what you have to make great fresh food.
 
 ##The Longer Story
 It started as somewhat of a joke. Host a YouTube show, maybe DIY home improvements. But really you can do anything with the help of the Internet. 
