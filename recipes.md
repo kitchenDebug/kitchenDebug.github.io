@@ -6,5 +6,5 @@ permalink: /recipes/
 
 #Recipe List
 
-Nothing here... yet :)
+* [Crockpot Broccoli & Beef] (https://youtu.be/pRayXBaTPrk)
 
