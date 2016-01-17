@@ -45,5 +45,5 @@ If you read the recipe that was my inspiration, you'll notice there is an extra 
 
 Maybe this has a video in its future. But trial 1 only has pictures for now.
 
-![Kolaches Before Baking](/images/preBake.jpg)
-![Finished Kolaches](/images/postBake.jpg )
+![Kolaches Before Baking](/./images/preBake.jpg)
+![Finished Kolaches](/./images/postBake.jpg )
