@@ -19,6 +19,8 @@ Come with me on this journey. I'll show you how I cook, shop, and setup my kitch
 
 ### Who Am I?
 
+/images/me.png
+
 My name is Amara. I'm a part time kitchen finatic and a full time software developer. After years of consuming the internet, I decided it was time to challenge myself to contributing back (or contribute deliciously). I've set myself up to keep most of the software junk separate, but after all this is kitchenDebug. As in debugging your recipes (like code) not removing unwanted pests.
 
 ### Contact me
