@@ -7,7 +7,7 @@ Making breakfast, just like making anything else, requires time and patience. I 
 
 Now for those of you who don't happen to know what a kolache is, they come in a couple different forms but mainly you either have fruit in the middle or meat inside. Personally I enjoy the meat variety, particularly jalapeno sausage and cheese. 
 
-This is where they adventure starts. I knew I wasn't going to get up early enough to make and rise dough. So I found a recipe that even suggested making the dough the night before. Perfect.
+This is where the adventure starts. I knew I wasn't going to get up early enough to make and rise dough. So I found a recipe that even suggested making the dough the night before. Perfect.
 
 Here is what we are working with: <http://baconbuttercheesegarlic.blogspot.com/2014/03/sausage-jalapeno-kolaches.html>
 
