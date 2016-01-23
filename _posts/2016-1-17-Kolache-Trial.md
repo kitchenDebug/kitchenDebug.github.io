@@ -15,17 +15,20 @@ Here is what we are working with:
 Of course I didn't follow it exactly because I have never seen or heard a person eat their kolache with mustard. Also kolaches need a yellow cheese, be that American or Cheddar.
 
 Ingredients
-* 1 package yeast (not instance or rapid rise)
-* 1 1/4 cup milk
-* 1/2 cup butter
-* 2 eggs
-* 2 teaspoons sugar
-* 1 teaspoon salt
-* 4 cups flour
-* 1 package Lil Smokies
-* 2 fresh chopped jalapenos
-* 1 package sliced sharp cheddar cheese
-* 1 egg (for egg wash)
+
+- 1 package yeast (not instance or rapid rise)
+- 1 1/4 cup milk
+- 1/2 cup butter
+- 2 eggs
+- 2 teaspoons sugar
+- 1 teaspoon salt
+- 4 cups flour
+- 1 package Lil Smokies
+- 2 fresh chopped jalapenos
+- 1 package sliced sharp cheddar cheese
+- 1 egg (for egg wash)
+
+Directions
 
 1. Put your yeast and sugar in the bowl of your mixer. Attach your bread hook.
 2. Melt butter and milk on the stove with medium-low heat. (It shouldn't be bubbling, but it shouldn't take all night)
