@@ -9,7 +9,8 @@ Now for those of you who don't happen to know what a kolache is, they come in a 
 
 This is where the adventure starts. I knew I wasn't going to get up early enough to make and rise dough. So I found a recipe that even suggested making the dough the night before. Perfect.
 
-Here is what we are working with: <http://baconbuttercheesegarlic.blogspot.com/2014/03/sausage-jalapeno-kolaches.html>
+Here is what we are working with: 
+<http://baconbuttercheesegarlic.blogspot.com/2014/03/sausage-jalapeno-kolaches.html>
 
 Of course I didn't follow it exactly because I have never seen or heard a person eat their kolache with mustard. Also kolaches need a yellow cheese, be that American or Cheddar.
 
