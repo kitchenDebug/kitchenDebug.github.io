@@ -23,6 +23,8 @@ Come with me on this journey. I'll show you how I cook, shop, and setup my kitch
 
 My name is Amara. I'm a part time kitchen fanatic and a full time software developer. After years of consuming the internet, I decided it was time to challenge myself to contributing back (or contribute deliciously). I've set myself up to keep most of the software junk separate, but after all this is kitchenDebug. As in debugging your recipes (like code) not removing unwanted pests.
 
+For a real treat, follow my [food board](https://www.pinterest.com/amara_keller/food/) on Pinterest. Prior to blogging I've had quite a following going from just my friends. Feel free to repin it all, I won't judge you. Out loud.
+
 ## Contact me
 
 [kitchenDebug@gmail.com](mailto:kitchenDebug@gmail.com)
