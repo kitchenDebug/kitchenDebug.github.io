@@ -14,7 +14,7 @@ Banana cake on the other hand always takes like 3-4 bananas (sometimes more!) wh
 As you may or may not know Intel is going through a layoff and restructuring period. This shouldn’t be news to anyone. I read somewhere that sharing baked goods is as much a morale booster as it is a waistline booster. We have a gluten free teammate and because I’ve decided he should have the potential to gain baked good induced weight right along with us, I used the rest of my Bob’s Red Mill 1 to 1 Baking Mix and made the banana cake gluten free. AND IT WAS AMAZING.
 
 Inspiration: <http://happyhooligans.ca/best-ever-banana-cake-with-cream-cheese-icing/>
-Make it gluten free with [Bob's Red Mill 1 to 1 Baking Mix](http://www.bobsredmill.com/gluten-free-1-to-1-baking-flour.html)
+Make it gluten free with Bob's Red Mill 1 to 1 Baking Mix.
 
 It was moist and delicious and so flavorful. The consistency was perfect! And it was so great I took it to work and got zero pictures because we were all busy stuffing our faces with banana cake. Instant morale booster and -4 bananas in my fridge.
 
